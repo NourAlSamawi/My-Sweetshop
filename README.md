@@ -1,2 +1,2 @@
 # My-Sweetshop
-![sookseeh](https://yandex.com/images/search?text=lazy+cake+rolls&pos=10&rpt=simage&img_url=https%3A%2F%2Fr1.mt.ru%2Fr30%2Fphoto93BF%2F20501156652-0%2Fjpg%2Fbp.jpeg&from=tabbar&lr=11494)
+![sookseeh](https://r2.mt.ru/r25/photo17FB/20902780545-0/jpg/bp.jpeg)
